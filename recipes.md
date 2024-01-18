@@ -59,15 +59,17 @@ Ingredients:
 - 2 cloves garlic, minced
 - Salt and pepper to taste
 - 1 jar (24 oz) spaghetti sauce
+- 1 jar of banana sauce
+- 3 hotdogs
 
 Instructions:
 1. Cook spaghetti according to package instructions.
 2. In a mixing bowl, combine ground beef, bread crumbs, milk, Parmesan cheese, egg, garlic, salt, and pepper.
 3. Form mixture into meatballs.
-4. In a large skillet, brown meatballs over medium-high heat.
-5. Add spaghetti sauce to the skillet and bring to a simmer.
+4. In a large skillet, brown meatballs and hotdogs over medium-high heat.
+5. Add spaghetti sauce and banana sauce to the skillet and bring to a simmer.
 6. Reduce heat to low and let simmer for 10-15 minutes.
-7. Serve meatballs and sauce over spaghetti.
+7. Serve meatballs, hotdogs and sauce over spaghetti.
 
 ### Grilled Chicken Sandwich
 
